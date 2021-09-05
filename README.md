@@ -4,6 +4,9 @@ Hi, I’m @YashCaNoN
 I LIKE TO BE CALLED AS CANON <SO CALL ME AS CANON>- 
 else;
 {"fck off"}
+  
+  FROM KOLKATA (INDIA)
+  
 👀 I’m interested in ethical hacking..
 - 🌱 Just started..
 
