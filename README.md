@@ -2,20 +2,17 @@
 {
 Hi, I’m @YashCaNoN
 I LIKE TO BE CALLED AS CANON <SO CALL ME AS CANON>- 
-else;
-{"fck off"}
+
   
   FROM KOLKATA (INDIA)
   
 👀 I’m interested in ethical hacking..
 - 🌱 Just started..
 
-WANT TO SERVE AT (INDIAN CYBER SECURITY) DIGITAL ARMY
 
 
 - 📫 How to reach me ...
-insta - @ig_canonyt
-Youtube - Canon bhaiya ('YOUTUBE CANON ")
+insta - yash_canon
 
 };
 <!---
